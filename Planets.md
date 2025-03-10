@@ -2,3 +2,7 @@ A planet is a celestial body that is in orbit around the Sun, has sufficient mas
 
 
 My favourite planet is saturn i like to explore it in my spare time
+
+I observed that it is beautiful planet
+
+Apart from Saturn Earth is a good Planet it is known as green Planet
