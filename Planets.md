@@ -2,7 +2,7 @@ A planet is a celestial body that is in orbit around the Sun, has sufficient mas
 Celestial bodies contain severel planets
 
 
-My favourite planet is saturn i like to explore it in my spare time
+My favourite planet is saturn i like to explore it in my spare time or i have a good information
 
 I observed that it is beautiful planet
 
